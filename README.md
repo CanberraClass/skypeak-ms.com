@@ -1,1 +1,1 @@
-# skypeak-ms.com
+# skypeak-ms.com/edit
